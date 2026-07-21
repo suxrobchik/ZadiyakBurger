@@ -1,2 +1,0 @@
-# ZadiyakBurger
-Hisob kitob uchun
